@@ -13,6 +13,7 @@ I saw it happen with my very two eyes.
 November 21st, 2024.
 
 ## What is the rapture?
+![Image](https://github.com/user-attachments/assets/9b3ea880-0895-4bc5-b03f-4c480ecaa907
 
 The Rapture is a spiritual event prophesied by Jesus in the Bible where God's people were taken away from this earth and catapulted to heaven via an ascension via God's angels.
 
