@@ -150,7 +150,7 @@ No one knows.
 
 To be part of it…
 
-Say this prayer with me:
+**Say this prayer with me:**
 
 Lord Jesus Christ, I accept that you died on the cross for my sins. Come into my life. I accept you today as my personal Lord and Savior. Forgive me of my wrongdoings. I promise to do your will. Thank you for accepting me. Amen.
 
@@ -166,7 +166,7 @@ In our time, Jesus is our Noah's ark. Get into him before it's too late.
 
 The Rapture is a spiritual event that took place on November 21st, 2024. It's an unprecedented event that took the world by storm. It might happen again, this time—for the second or last time.
 
-This article was written under **Jesus** Guidance.
+This article was written under **Jesus Christ** Guidance.
 
 …And the **Trinity** and **Mary - Mother of Christ** (....).
 
